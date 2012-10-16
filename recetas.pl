@@ -1,0 +1,10 @@
+receta(jnvjn,kvnvn,ninioijo,nionioini,oininino).
+receta(ninino,noininini,inioninoni,ininioubuo,iijih87g855y8937859g8835h9g83u895ug).
+receta(oiu,jhgh,jhjhjhk,ykkkvjv,iouojghgfjhkkghjjghg).
+receta(hjkj,jhjhkh,hiioiu,iouiuoi,pooiuhjkiuhbjks).
+receta(queur,tefa,tico,jugo,exprimir
+).
+receta(yudi,turf,juhd,oplw,jjjjkskeu
+).
+receta(olare,uid,kfjksk,jjoijioj,uiopkjhuhjk
+).
